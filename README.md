@@ -1,0 +1,1 @@
+# StoicFinance-Assets
